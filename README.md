@@ -1,5 +1,5 @@
 (Pedro Henrique Damasceno Araújo)
-15 anos| pedriph_zx15| (TEA).
+15 anos| pedriph_zx15| transtorno do espectro autista.
 
 OBJETIVOS
 são alcançarem as minhas metas planejadas tento terminar o ensino médio completo buscarei tentar fazer curso por áreas que eu quero seguir a maior de todas é dublagem, botânica, Engenharia.
